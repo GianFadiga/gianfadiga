@@ -1,4 +1,4 @@
-## Hey, welcome to my profile! 
+## Take on me! 
 # GianFadiga
 
  <div>
